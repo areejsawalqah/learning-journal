@@ -1,4 +1,4 @@
-growth mindset 
+#growth mindset 
                                                                                                                                                
                                                                                                                                                
    to learn from other people you need prepare your brain and to describe people have about learning in our life...
